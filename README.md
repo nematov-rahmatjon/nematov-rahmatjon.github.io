@@ -1,2 +1,2 @@
-# nematov-rahmatjon.github.io
+# gameuz.github.io
 orange 
